@@ -1,2 +1,3 @@
 # QUIZ-SERIES-FROM-FOCKIN-ADAM
 FUCKING WHILE LOOPPPPP!!!
+BTW skip quiz7 cause its the bullshit 1
